@@ -2,7 +2,7 @@
 - 👀 I’m interested in Gaming
 - 🌱 I’m currently learning coding
 - 💞️ I’m looking to collaborate on github
-- 📫 How to reach me insta 
+- 📫 How to reach me insta @rambogamerpro
 - 😄 Pronouns: he
 - ⚡ Fun fact: don't like vegetables 
 
